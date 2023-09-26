@@ -1,2 +1,0 @@
-Bei Satzteilen mit gleicher syntaktischer Funktion wird entweder durch Konjunktion oder wahlweise Komma getrennt. Eine gleichzeitige Verwendung findet nicht statt.
-Quelle: Goehte Universität: Kommaregeln kompakt: https://www.starkerstart.uni-frankfurt.de/59989505/A15_Kommaregeln_kompakt.pdf, abgerufen am 26.09.2023
